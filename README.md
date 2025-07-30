@@ -1,2 +1,0 @@
-# psychoglitched.github.io
-kmjnhugbvtfdcresxw
